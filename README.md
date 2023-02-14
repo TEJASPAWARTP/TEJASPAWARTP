@@ -7,5 +7,5 @@
 - 📫 How to reach me: pawar.tejas28@gmail.com 
 - 📲 WhatsApp Me [HEY WHATSAPP](http://wa.me/918379974271).
 - 😄 Pronouns: TP
-- ⚡ Fun fact: My life more funnyer tham you😁
--->
+
+
